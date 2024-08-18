@@ -14,4 +14,5 @@ CONTACT INFORMATION <br>
 For any inquiries or collaborations, feel free to reach out:
 
 Email:lokeshgopal2104@gmail.com<br>
-LinkedIn:linkedin.com/in/meka-lokesh-gopal-ba784527b
+LinkedIn:Meka Lokesh gopal
+
